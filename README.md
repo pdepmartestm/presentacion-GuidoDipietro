@@ -21,7 +21,7 @@ Soy un [Speedcuber](https://www.worldcubeassociation.org/persons/2013DIPI01) act
 Tengo solo una foto en mi vida en la que salí bien.   
 Me agradan mucho las matemáticas, así como la literatura (incluso cuando me aburro escribo cosas [acá](http://laspreguntasdeguido.blogspot.com/?m=1)), y el único deporte que hago bien es la natación (sí, ni siquiera soy bueno en ajedrez).  
 Me **encanta** el cine; me apasiona mucho. No tengo película favorita (tengo muchas) pero una que siempre recuerdo con increíble fascinación es _Memento_.  
-Admito a la gente proactiva y que rompe barreras. Siempre intento alentar a la gente a que se autosupere.  
+Admiro a la gente proactiva y que rompe barreras. Siempre intento alentar a la gente a que se autosupere.  
 
 Soy recontra obsesivo (no me digas!!!), y eso lleva a que me quede haciendo TPs hasta muy tarde o escriba una presentación para Paradigmas larguísima.  
 *Siempre* estoy dispuesto a que la gente me diga las cosas que estoy haciendo mal porque las quiero mejorar. Salvo que me lo digan insultando.  
