@@ -4,7 +4,7 @@
 
 Soy Guido Dipietro, estudiante de Ingeniería en Sistemas en UTN FRBA.
 Terminé el colegio secundario en ORT con un título de Bachiller Técnico orientado en Electrónica.
-Aprendí a leer e hice el jardín en Chile.
+Soy Argentino pero aprendí a leer e hice el jardín en Chile.
 
 ### (ALERTA: Escribí muchísimo)  
 
@@ -12,6 +12,7 @@ Aprendí a leer e hice el jardín en Chile.
 
 Me gusta mucho hacer cosas nuevas, y pensar.  
 Soy muy poco expresivo en persona, pero aún así muy emocional. No te vas a dar cuenta.  
+No me molesta que la gente me pregunte por qué hago las cosas que hago; de hecho, lo recomiendo.  
 A veces hago cosas que la gente no entiende bien, pero como yo siempre digo,  
 
 > Todos los sucesos fuera de lo común son experiencias que nos suman puntos imaginarios. La vida es para jugarla.
