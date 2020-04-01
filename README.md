@@ -1,6 +1,6 @@
 # Hola, qué bueno verte por acá
 
-![error, mucha facha para una foto]()
+![error, mucha facha para una foto](/IMG_20191208_183312.jpg)
 
 Soy Guido Dipietro, estudiante de Ingeniería en Sistemas en UTN FRBA.
 Terminé el colegio secundario en ORT con un título de Bachiller Técnico orientado en Electrónica.
