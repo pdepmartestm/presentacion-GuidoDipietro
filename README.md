@@ -23,7 +23,7 @@ Me agradan mucho las matemáticas, así como la literatura (incluso cuando me ab
 Me **encanta** el cine; me apasiona mucho. No tengo película favorita (tengo muchas) pero una que siempre recuerdo con increíble fascinación es _Memento_.  
 Admiro a la gente proactiva y que rompe barreras. Siempre intento alentar a que la gente se autosupere.  
 
-Soy recontra obsesivo (¡¡¡no me digas!!!), y eso lleva a que me quede haciendo TPs hasta muy tarde hasta que estén perfectos (aunque a veces están todavía mal) o escriba una presentación para Paradigmas larguísima.  
+Soy recontra obsesivo (¡¡¡no me digas!!!), y eso lleva a que me quede haciendo TPs hasta muy tarde hasta que estén perfectos (aunque a veces estén todavía mal) o escriba una presentación para Paradigmas larguísima.  
 *Siempre* estoy dispuesto a que la gente me diga las cosas que estoy haciendo mal porque las quiero mejorar. Salvo que me lo digan insultando.  
 Me divierto con cualquier cosa. Incluso con el aburrimiento.  
 
