@@ -13,25 +13,25 @@ Soy Argentino pero aprendí a leer e hice el jardín en Chile.
 Me gusta mucho hacer cosas nuevas, y pensar.  
 Soy muy poco expresivo en persona, pero aún así muy emocional. No te vas a dar cuenta.  
 No me molesta que la gente me pregunte por qué hago las cosas que hago; de hecho, lo recomiendo.  
-A veces hago cosas que la gente no entiende bien, pero como yo siempre digo,  
+A veces hago cosas que la gente no entiende bien, pero como yo siempre digo:   
 
-> Todos los sucesos fuera de lo común son experiencias que nos suman puntos imaginarios. La vida es para jugarla.
+> "Todos los sucesos fuera de lo común son experiencias que nos suman puntos imaginarios. La vida es para jugarla."
 
-Soy un [Speedcuber](https://www.worldcubeassociation.org/persons/2013DIPI01) activo, y batí 16 récords nacionales y continentales en mi carrera. 
+Soy un [Speedcuber](https://www.worldcubeassociation.org/persons/2013DIPI01) activo; batí 16 récords nacionales y continentales en mi carrera. 
 Tengo solo una foto en mi vida en la que salí bien.   
 Me agradan mucho las matemáticas, así como la literatura (incluso cuando me aburro escribo cosas [acá](http://laspreguntasdeguido.blogspot.com/?m=1)), y el único deporte que hago bien es la natación (sí, ni siquiera soy bueno en ajedrez).  
 Me **encanta** el cine; me apasiona mucho. No tengo película favorita (tengo muchas) pero una que siempre recuerdo con increíble fascinación es _Memento_.  
-Admiro a la gente proactiva y que rompe barreras. Siempre intento alentar a la gente a que se autosupere.  
+Admiro a la gente proactiva y que rompe barreras. Siempre intento alentar a que la gente se autosupere.  
 
-Soy recontra obsesivo (no me digas!!!), y eso lleva a que me quede haciendo TPs hasta muy tarde o escriba una presentación para Paradigmas larguísima.  
+Soy recontra obsesivo (¡¡¡no me digas!!!), y eso lleva a que me quede haciendo TPs hasta muy tarde hasta que estén perfectos (aunque a veces están todavía mal) o escriba una presentación para Paradigmas larguísima.  
 *Siempre* estoy dispuesto a que la gente me diga las cosas que estoy haciendo mal porque las quiero mejorar. Salvo que me lo digan insultando.  
 Me divierto con cualquier cosa. Incluso con el aburrimiento.  
 
 No salgo de mi casa hace 16 días por el covid-19, y extraño mucho hacerlo.  
-Me gusta conocer gente y divertirme a mi manera.  
+Disfruto de conocer gente y divertirme a mi manera.  
 
 Me gusta mucho Muse, altísima banda.  
-Sin embargo odio la música de fondo. Me desconcentra mucho.
+Sin embargo odio la música de fondo. Me desconcentra mucho.  
 
 Algunos otros hobbies que tengo son:
 - Programar (obvio) (aguante Python)
