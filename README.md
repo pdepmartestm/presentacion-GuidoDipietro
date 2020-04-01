@@ -2,7 +2,7 @@
 
 ![error, mucha facha para una foto](/IMG_20191208_183312.jpg)
 
-Soy Guido Dipietro, estudiante de Ingeniería en Sistemas en UTN FRBA.
+Soy Guido Dipietro (171-666-9), estudiante de Ingeniería en Sistemas en UTN FRBA.
 Terminé el colegio secundario en ORT con un título de Bachiller Técnico orientado en Electrónica.
 Soy Argentino pero aprendí a leer e hice el jardín en Chile.
 
@@ -29,6 +29,9 @@ Me divierto con cualquier cosa. Incluso con el aburrimiento.
 
 No salgo de mi casa hace 16 días por el covid-19, y extraño mucho hacerlo.  
 Me gusta conocer gente y divertirme a mi manera.  
+
+Me gusta mucho Muse, altísima banda.  
+Sin embargo odio la música de fondo. Me desconcentra mucho.
 
 Algunos otros hobbies que tengo son:
 - Programar (obvio) (aguante Python)
