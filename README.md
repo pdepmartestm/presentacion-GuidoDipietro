@@ -32,6 +32,10 @@ Disfruto de conocer gente y divertirme a mi manera.
 
 Me gusta mucho Muse, altísima banda.  
 Sin embargo odio la música de fondo. Me desconcentra mucho.  
+Algunos libros que me gustaron mucho:
+- La invención de Morel
+- El club de la pelea
+- El psicoanalista
 
 Algunos otros hobbies que tengo son:
 - Programar (obvio) (aguante Python)
